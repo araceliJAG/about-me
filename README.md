@@ -47,6 +47,6 @@ I love being the person who dives in head-first to tackle the steep learning cur
 
 ## 📬 Let's Connect!
 
-* **Email:** [araceliandrade5.30@gmail.com](mailto:araceliandrade5.30@gmail.com)[cite: 1]
-* **LinkedIn:** [linkedin.com/in/araceli-jag04](https://www.linkedin.com/in/araceli-jag04)[cite: 1]
-* **Location:** Duluth / Atlanta, GA[cite: 1]
+* **Email:** [araceliandrade5.30@gmail.com](mailto:araceliandrade5.30@gmail.com)
+* **LinkedIn:** [linkedin.com/in/araceli-jag04](https://www.linkedin.com/in/araceli-jag04)
+* **Location:** Duluth / Atlanta, GA
